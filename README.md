@@ -18,9 +18,9 @@ My friends call me Mat, but also known as "while".
 
 ## Hobbies
 
-- 🏓 Play tabble tennis
+- 🏓 Tabble Tennis
 - 🎵 Listen to music
-- ⏳ Assemble the magic cube
+- ⏳ Magic cube
 - 🎮 Play some games
 ---
 
